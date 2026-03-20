@@ -1,2 +1,2 @@
 # seigengrauni.github.io
-SMPW
+Let Us Introduce Ourselves, Okay <3
